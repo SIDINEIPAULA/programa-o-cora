@@ -1,1 +1,5 @@
-# programa-o-cora
+# Curiosidades da copa
+
+🫀:maior ganhador
+
+⚽: Artilheiro
